@@ -1,0 +1,1 @@
+HI this is a fanmade vrsion of window 12 making you know that window 11 can also be convert to window 12 here its latest realese https://github.com/gamersac100/Window-12/releases I will make some new release bye!
